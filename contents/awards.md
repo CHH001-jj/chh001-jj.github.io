@@ -1,5 +1,5 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Outstanding Graduate A11ward (CUMT), 2025.
 
 - National Scholarship for Graduate Student, 2024.
 
